@@ -1,2 +1,0 @@
-# boomskins
-yeah tiry
